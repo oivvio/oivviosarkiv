@@ -1,6 +1,6 @@
 server {
     listen 80;
-	server_name beta.oivviosarkiv.polite.se www.oivviosarkiv.polite.se;
+	server_name oivviosarkiv.polite.se www.oivviosarkiv.polite.se;
 	root /home/oivvio/sites/oivviosarkiv/output;
 
     index index.html;
@@ -9,4 +9,12 @@ server {
 	location / {
 		try_files $uri $uri/ =404;
     }   
+
+    location /white-like-me {
+        rewrite ^/.* http://$server_name/pages/white-like-me.html permanent;
+    }
+
+    location /om-arkivet {
+        rewrite ^/.* http://$server_name/pages/om-arkivet.html permanent;
+    }
 }
