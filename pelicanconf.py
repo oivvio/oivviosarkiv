@@ -31,5 +31,7 @@ DISPLAY_CATEGORIES_ON_MENU = False
 
 STATIC_PATHS = ['images', 'pdfs', 'audio']
 MENUITEMS = [('Hem', '/')]
+GOOGLE_ANALYTICS = "UA-2026673-1"
+
 # Uncomment following line if you want document-relative URLs when developing
 #RELATIVE_URLS = True
