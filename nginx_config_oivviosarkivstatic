@@ -1,0 +1,12 @@
+server {
+    listen 80;
+	server_name beta.oivviosarkiv.polite.se www.oivviosarkiv.polite.se;
+	root /home/oivvio/sites/oivviosarkiv/output;
+
+    index index.html;
+    autoindex off;
+
+	location / {
+		try_files $uri $uri/ =404;
+    }   
+}

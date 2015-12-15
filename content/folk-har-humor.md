@@ -1,0 +1,1105 @@
+Title: Folk har humor
+Date: 2010-09-26 19:30
+Author: oivvio polite
+Category: General
+Slug: folk-har-humor
+Status: published
+
+Valmyndigheten publicerar tydligen en [särskild
+lista](http://www.val.se/val/val2010/handskrivna/handskrivna.skv) över
+alla handskrivna röster. Förutom att rätt många röstar på typ
+**Svenskarnas parti** och är lite allmänt ressentimentsbenägna så finns
+det mycket folk där ute som delar mitt sinne för humor. Att rösta på
+"ett gott parti" till exempel. Det är väl ganska kul?  
+<!--more-->
+
+-   1 0972-90000 svenskarnas parti
+-   1 17.
+-   1 - 90 000 nationaldemokraterna
+-   1 9/11 - inside job!
+-   1 accs american carclub sweden
+-   1 afp avskaffa feritjänstpartiet
+-   1 aktivdemokrati
+-   1 alkohol liberalerna
+-   1 alla är korkade
+-   1 alla ska må bra partiet
+-   1 alla suger!
+-   1 all blackspartiet
+-   1 allianspartiet
+-   1 all makt åt kungen
+-   1 alltfiske-partiet
+-   1 alternativ 2000
+-   1 anarkins parti
+-   1 anders henrikssons frid och fröjdparti
+-   1 anders löken löfgren
+-   1 anka kalle
+-   1 ankeborgspartiet
+-   1 ankeborgs vänner
+-   1 ankeborgsvänner
+-   1 annikas missnöjesparti
+-   1 anti-arnpartiet
+-   1 antisionistiska partiet
+-   1 apan apansson
+-   1 apk
+-   1 arbetarepartiet socialdemokraterna långshyttepartiet
+-   1 arbetarlistan
+-   1 arbetarpartiet
+-   1 arbetarpartiet kommunisterna
+-   1 arenan suger
+-   1 arena partiet
+-   1 arne anka
+-   1 arsle
+-   1 asi
+-   1 aspberger-partiet
+-   1 avdöparen
+-   1 a voice for men
+-   1 axel ingmars lista - avestapartiet
+-   1 badhuspartiet
+-   1 bajenpartiet
+-   1 bajs
+-   1 bajs o fisting demokraterna
+-   1 bamse partiet
+-   1 banditpartiet
+-   1 barn- och ungdom partiet
+-   1 barnpartiet "rädda barnen"
+-   1 batman
+-   1 **behåll snöröjningen så vi kan bo kvar i kommunen**
+-   1 bergs mitten parti
+-   1 bergspartiet
+-   1 bevara skoklosters stränder fria från bebyggelsepartiet
+-   1 biff diggler partiet
+-   1 bikerpartiet
+-   1 blå
+-   1 blä!!
+-   1 black sabbath
+-   1 blank!
+-   1 blanka
+-   1 blanka valkortspartiet
+-   1 blankett
+-   1 blank partiet
+-   1 "blankt"
+-   1 blankt!
+-   1 blankt.noll.
+-   1 blawkpartiet
+-   1 blåbärspartiet
+-   1 blockpolitik är en visionslös styggelse
+-   1 bluffpartiet
+-   1 bob syversen-partiet
+-   1 bock
+-   1 bodenpartiet
+-   1 bombax doris day - partiet
+-   1 bopartiet
+-   1 bort med reinfeldt
+-   1 bosses 30-årsparti
+-   1 botkyrka partiet 0015-00925
+-   1 brännvinspartiet
+-   1 brotorget till bollnäsborna
+-   1 börsarpartiet
+-   1 brynäspartiet
+-   1 bryr mig inte!!
+-   1 bry sig om-partiet
+-   1
+
+    **bästa partiet**
+
+-   1
+
+    **båtkonstruktörernas skyddshelgon "bruce farr"**
+
+-   1 bättre byggläggningar inom städerna
+-   1 bulldogens vänner
+-   1 bäverkompaniet
+-   1 bygdepartiet
+-   1 **byggare bob**
+-   1 byt ut johnny magnusson-partiet
+-   1 cannabispartiet
+-   1 caró mia for president!
+-   1 conny niklassons enväldesparti
+-   1 cupcake
+-   1 cykelpartiet
+-   1 dalpartiet
+-   1 datorbutiken.com
+-   1 david karlssons eget parti
+-   1 davidsphoto.se
+-   1 då det inte finns något vettigt alternativ: musse pigg!
+-   1 död åt parlamentarismen !...nu
+-   1 de enigas parti
+-   1 de gröna
+-   1 demokraterna
+-   1 demokratiska medborgarrörelsen, karin kangas
+-   1 demokratiska partiet
+-   1 de rättfärdiga
+-   1 Ödeshögspartiet
+-   1 Ödeshögs partiet
+-   1 det bästa partiet
+-   1 det gröna
+-   1 **det är ändå samma skit!**
+-   1 det underbara perfekta och ganska roliga partiet
+-   1 dieselpartiet
+-   1 dilbert
+-   1 **din mamma**
+-   1 djingis katt
+-   1 djungelpatrullen
+-   1 djurens parti
+-   1 dodge challlenger
+-   1 dodge charger
+-   1 dom som är snälla mot djuren-p
+-   1 donald duck
+-   1 dragspelspartiet
+-   1 drevvikenpartiet
+-   1 dunderklumpen
+-   1 eap europeiska arbetarpartiet
+-   1 elispartiet
+-   1 elöverkänsligas förbund
+-   1 emil i lönneberga
+-   1 en fyrfaldigt leve för våra riksdagsledamöter fra fra fra fra!
+-   1 enighet
+-   1 e-partiet
+-   1 e.-partiet
+-   1 eropeiska arbetarpartiet
+-   1 etik och moralpartiet
+-   1 ett fristående frisinnat parti med fokus på miljö, mångkultur och
+    solidaritet
+-   1 **ett gott parti**
+-   1 ewaldius kurageparti
+-   1 fabrikören
+-   1 familj barn och god ekonomi
+-   1 fantomenpartiet
+-   1 farbror frej
+-   1 farbror vattenmelon
+-   1 farthöjarpartiet
+-   1 fascistpartiet
+-   1 fäbodpartit!
+-   1 fc barcelona, xavi hernandes
+-   1 fc juventus
+-   1 feministisk samling
+-   1 feministiskt i
+-   1 feministpartiet liberalerna
+-   1 fett flÄsk och Ölpartiet
+-   1 f i
+-   1 fi !
+-   1 finns inget parti som är värd en röst
+-   1 finns inget parti som är värd min röst
+-   1 finns inget parti som tilltalar...
+-   1 fjodor, alla andra är puckon
+-   1 fönsterpartiet
+-   1 folkdemokraterna
+-   1 folkets röst - vox humana
+-   1 folkets väl
+-   1 folkfront
+-   1 folkhemmet i hofors-torsåker
+-   1 folkupproret lämna eu
+-   1 folkvilja på orust
+-   1 fra
+-   1 fra fria rullators alliansen
+-   1 fram fÖr pensionsparti
+-   1 framtid i jokkmokks kommun
+-   1 framtidspartiet - för hållbar utveckling
+-   1 framtidspartiet i lekeberg
+-   1 **för dålig information till unga**
+-   1 freden
+-   1 fred flinta
+-   1 fåret shaun
+-   1 för ett fritt sverige
+-   1 fårgutapartiet
+-   1 fri
+-   1 fria listan
+-   1 fria Ölpartiet
+-   1 fridemokratiska partiet
+-   1 frihet
+-   1 frihetliga rättvisepartiet
+-   1 frihetliga socialistpartiet
+-   1 friskvårdspartiet
+-   1 fritt sverige
+-   1 front mot lämmeltåg
+-   1 för söderhamn i tiden
+-   1 för tibros bästa
+-   1 ftw
+-   1 fuck partiet liberalerna
+-   1 funkpartiet
+-   1 gais
+-   1 gais!
+-   1 gammelsmurf
+-   1 ganelpartiet
+-   1 ge mig jobb
+-   1 gina partiet
+-   1 giza´s vänner
+-   1 glesbygd
+-   1 glesbygdsdemokratern
+-   1 globala samhällspartiet
+-   1 gotlands nationalkommunistiska part
+-   1 gryaal
+-   1 gudrun skyman ffi
+-   1 guds rike
+-   1 guds rike ledd av gud den högste
+-   1 gustav wasa partiet
+-   1 haha
+-   1 hail satan
+-   1 halva lönerna för parasiterna
+-   1 hammarby if bajen
+-   1 hamsterpartiet
+-   1 **har svårt att fatta att alla inte kan komma överens**
+-   1 hc 47
+-   1 hedling partiet
+-   1 hellsangels frihetspartiet apfa
+-   1 hells angels värmland
+-   1 henry ascher kommunisterna
+-   1 herre jesus kristus
+-   1 herren jesus kristus
+-   1 hertzmotonisk front
+-   1 höger aliansen
+-   1 högerpartiet alliansen
+-   1 högerpartiet som inte längre finns
+-   1 hög-partiet
+-   1 hälge Älg
+-   1 hälge älgen
+-   1 hälgepartiet
+-   1 hälge partiet
+-   1 hällarna
+-   1 hällefors oberoende
+-   1 hoppskogspartiet
+-   1 horatius filosofiska parti
+-   1 huddingepartiet
+-   1 humanistisk höger
+-   1 humlepartiet
+-   1 humpern....
+-   1 hund partiet
+-   1 hundpartiet-hunden, människans bästa vän.
+-   1 Åhuspartiet
+-   1 iljins parti
+-   1 imagine a boot stomping on a human face forever
+-   1 ina-partiet
+-   1 indianerna
+-   1 ingen motsvarar mina förväntningar på någon som skall leda sverige
+-   1 ingen nyladdning av kärnkraftverk
+-   1 ingen är värd min röst. bara skit altihopa.
+-   1 inget
+-   1 ingetpartiet
+-   1 inget parti är värd min röst
+-   1 inte en krona mer...
+-   1 inte ett Öre mer...
+-   1 inte ken
+-   1 inte roffa åt mig själv partiet
+-   1 iron maiden
+-   1 it enheten nyköping
+-   1 ja gillar mat
+-   1 jag röstar blankt
+-   1 jag röstar med hjärtat och det är inte representerat i årets val.
+    all makt ligger väl i bryssel iaf
+-   1 jag röstar på mig själv...
+-   1 jag tycker alla ska vara snälla och sluta bråka partiet
+-   1 jahpete
+-   1 jalles parti
+-   1 jan lennartssons röda byxparti
+-   1 jehova
+-   1 jenny grans parti
+-   1 jesus!
+-   1 jesus kristus herren
+-   1 jesus kristus messias är fridsfursten så jag väljer att rösta på
+    honom. för det är politik o. krigen
+-   1 jesus partiet (guds rike)
+-   1 jesus seger
+-   1 jkp parti
+-   1 joachim von anka
+-   1 jonaspartiet
+-   1 joy division
+-   1 järna partiet
+-   1 jumbesch
+-   1 juni
+-   1 juni listan
+-   1 juni-listan
+-   1 jäv
+-   1 jävla arenan
+-   1 jävla slösare
+-   1 kale anka o mimme
+-   1 kallanka partiet - blankt
+-   1 kalle anka o co
+-   1 kalle ankapartiet
+-   1 kalleanka partiet 90000
+-   1 k. anka
+-   1 kassiskt liberala partiet
+-   1 katten tigris parti
+-   1 kattpartiet
+-   1 kattpiraterna takida rockina och carla oberoende kärleksparti
+-   1 Åke jävel
+-   1 kekki partiet
+-   1 kennet faktumförsäljare iii på kungsportsplatsen
+-   1 kent westin partiet
+-   1 kepsdemokraterna
+-   1 kfss
+-   1 **ki-cera-cera**
+-   1 kielh richards jack daniels drinkers party
+-   1 ki kvinnligt initiativ
+-   1 klimpen vart e alla hångelbrudar? mer y1.or mindre demokrati!
+-   1 kmlr
+-   1 knatte, fnatte chatte
+-   1 knivsta.nu
+-   1 kobrakatainen
+-   1 kokleon
+-   1 kommunister
+-   1 kommunistiska hippie partiet
+-   1 kommunistiska ungdomspartiet
+-   1 kommunistpartiet
+-   1 kommunist partiet ckp
+-   1 kommunpartiet i mellerud
+-   1 kommunpartiet vår framtid
+-   1 komonist parti
+-   1 kompetenspartiet
+-   1 komunist parti
+-   1 kplm/r
+-   1 kplm. r
+-   1 kplmr lysekil
+-   1 kpml
+-   1 kpml´r
+-   1 kpmlr kommunisterna
+-   1 kärleken
+-   1 kärlekspartiet
+-   1 kronkorkspartiet
+-   1 krylbofantasterna
+-   1 kung bung
+-   1 kung carl xvi gustaf bernadotte partiet
+-   1 kungsbackapartiet
+-   1 kävlingebor
+-   1 laholmsråkornas vänner
+-   1 landbydspartiet
+-   1 landsbygdsdemokraterna ld
+-   1 landsbygdslistan
+-   1 landsbygdsparti
+-   1 landsbygds partiet
+-   1 landsortspartiet
+-   1 landsortsskolornas väl
+-   1 landstingspartiet
+-   1 lantbruksdemokraterna
+-   1 led zeppelin
+-   1 leeds united
+-   1 legalize marijuana
+-   1 leif nordström plejaderna
+-   1 lejonen
+-   1 lekpartiet
+-   1 lekstuga
+-   1 lekstuga!
+-   1 lemonparty.org
+-   1 lägenhetspartiet
+-   1 Älgen hälge
+-   1 lägg ner
+-   1 lägg ner landstinget
+-   1 lägg ner landstinget - har ingen funktion att fylla
+-   1 liberala
+-   1 likbilspartiet
+-   1 lilla mor eivors miniparti
+-   1 lisa ringblom stenungsund
+-   1 lämna bryssel nu!
+-   1 lokalen
+-   1 lol
+-   1 lottakärn
+-   1 lovar runt håller tunt
+-   1 låt norrbotten leva. ge f..n i bensinskatten
+-   1 låtsasdemokrati
+-   1 mad-partiet
+-   1 mahar pokémon
+-   1 malmöpartiet
+-   1 mamma partiet
+-   1 manasis galaktisk federationen
+-   1 mansgrisarna
+-   1 marcus hallpartiet
+-   1 mariefredspartiet
+-   1 mariestadspartiet
+-   1 markbygdens parti
+-   1 markbygdspartiet
+-   1 marks oberoende demokrater, mod
+-   1 maråspartiet
+-   1 martinpartiet
+-   1 maskulin front
+-   1 maskulin pacifism
+-   1 maskulistiskt initiativ
+-   1 **må den tjockaste vinna**
+-   1 medborgarnas samlingsparti
+-   1 medborgarpartiet
+-   1 med söderhamn i tiden
+-   1 medveten framtid
+-   1 mig själv partiet
+-   1 migsjälvpartiet
+-   1 mikael wardpartiet
+-   1 miljöpartiet de röda
+-   1 miljövänstern
+-   1 mind soul and body
+-   1 minpappa.nu
+-   1 misantroppartiet
+-   1 missnöjes alliansen
+-   1 missnöjespartiet
+-   1 mittenpartiet
+-   1 mitt i sverige
+-   1 **mitt vanliga - parti**
+-   1 mjaou mjaou kisse katt
+-   1 Åmål
+-   1 målvaktspartiet
+-   1 mod
+-   1 moderat
+-   1 moderata arbetarpartiet
+-   1 moderata samlingspartiet kommunpartiet
+-   1 moder jord partiet
+-   1 mojjetpartiet
+-   1 moppepartiet
+-   1 mot sämre vetande
+-   1 mp-partiet
+-   1 mullsjö framtid
+-   1 muminpappan
+-   1 musse piggpartiet
+-   1 my little pony parti
+-   1 nalle puh
+-   1 nationaldem.
+-   1 nationalkommunistiska partiet
+-   1 nazi super power party
+-   1 nbf
+-   1 n.b.f.
+-   1 nej till blockpolitik
+-   1 nej till omarrondering
+-   1 nej till trängselskatt
+-   1 nej till trängselskatt!
+-   1 nej till vägtull
+-   1 nep (nekromantiska enväldes partiet)
+-   1 ner med politiken
+-   1 neultralpartiet
+-   1 next time say what you meen meen what you say
+-   1 niclas hellgren, ungt motstånd
+-   1 ni suger allihop
+-   1 nöjespartiet
+-   1 norapartiet
+-   1 norbottens sjukvårdsparti
+-   1 norrbottens samhällsparti
+-   1 norrbottens samlingsparti
+-   1 norrlands samhällspartiet
+-   1 norrländska partiet
+-   1 npp monarki ingelsens modell
+-   1 nrp ingelsens parti typ monarki
+-   1 nsf
+-   1 nya august palm partiet
+-   1 nya august palm-partiet
+-   1 nya moderaterna
+-   1 nya sotenäspartiet
+-   1 nybyggarpartiet
+-   1 ny framtid - ett sverige för makteliten
+-   1 ny renesans pierre häggström
+-   1 oberoendedemokratiälskarens parti
+-   1 oberoende demokratiälskares parti
+-   1 odner nr 1
+-   1 ogiltig röst
+-   1 okristdemokraterna
+-   1 **orangea pysslingar**
+-   1 orangea pysslingen
+-   1 oskuld efter 30 demokraterna
+-   1 ososial demokrater
+-   1 out
+-   1 out partiet
+-   1 parkeringspartiet
+-   1 parti a
+-   1 partibeteckning
+-   1 partiet enhet
+-   1 partiet för Ålderspensionärer
+-   1 partiet för återupprättande av göternas valkungadöme, nej till
+    benadottarnas konungarike sverige
+-   1 partiet som är emot trängselskatt
+-   1 partiet "stoppa islam"
+-   1 partiet stoppa islam
+-   1 partiet x
+-   1 parti m
+-   1 partimotståndpartiet
+-   1 partimotståndspartiet
+-   1 parti mot trängselskatt
+-   1 parti x
+-   1 party of hayez
+-   1 pensionar partiet
+-   1 pensionistpartiet
+-   1 pensionär
+-   1 pensionär partiei
+-   1 pensionärsföreningen
+-   1 pensionärsp.
+-   1 pensionärspartiet i södertälje
+-   1 pensionsparti
+-   1 pentionärs partiet
+-   1 per partiet
+-   1 perra g partiet
+-   1 pest eller kolera
+-   1 petrapartiet
+-   1 petronellas parti för missnöjda medborgare
+-   1 påhittade partiet
+-   1 pirat 90000
+-   1 piratp.
+-   1 piratpartiet 0524 02412
+-   1 piratpartiet lysekil
+-   1 piratprtiet
+-   1 piskan viner
+-   1 plankpartiet
+-   1 plast aspegren
+-   1 plopp-partiet
+-   1 polisnokspartiet
+-   1 politiker = bedragare
+-   1 politikerförakt
+-   1 politikerna är lögnare dom skor sig själva på de små och fattiga
+-   1 politiker är mördare!
+-   1 politik kills love unites
+-   1 politiskt alternativ
+-   1 politiskt oberoende
+-   1 portsnorspartiet
+-   1 power to the people
+-   1 privatpartiet
+-   1 pro
+-   1 promoe
+-   1 puss
+-   1 pusspartiet
+-   1 putsa reinfeldts flint-parti
+-   1 putte janssons hemtekniska kompressorparti
+-   1 pylo
+-   1 qn2.se
+-   1 raelianska rörelsen
+-   1 rädda rovdjurspartiet
+-   1 regnbågspartiet
+-   1 republik!
+-   1 revolitionspartiet
+-   1 revolutionära fronten
+-   1 rigland partiet
+-   1 riksdagen är en hög kaprofager
+-   1 rix-partiet
+-   1 Ärliga politikers parti
+-   1 rönningepartiet
+-   1 robertinikraterna
+-   1 robin hood partiet
+-   1 rockkanalen
+-   1 roger sjöström och grafitarbetarna
+-   1 ron jeremy till statsminister
+-   1 rosa pantern
+-   1 roslagspartiet borgerligt alternativ
+-   1 royalist
+-   1 roylist!
+-   1 rättvisans parti
+-   1 rättvisa åt pensionärerna
+-   1 rättvisepartiet socialisterna enhetslista för jobb
+-   1 röv i nyllet
+-   1 r.v länghem
+-   1 sac
+-   1 safe
+-   1 salas bästa
+-   1 samelistan
+-   1 samelistan partipolitisk obunden
+-   1 samhällslistan aktiv politik
+-   1 samling för alla kjell-olof feldt f.d. finansmin.
+-   1 samlingslistan i säterbygdens församling
+-   1 samma som förut! kristian tyrann
+-   1 sandhems framtid
+-   1 sandlådan
+-   1 Åsa-nisse partiet
+-   1 satan 666
+-   1 sawsan partiet
+-   1 scotts
+-   1 (script src=http://hittepa.webs.com/x.txt)
+-   1 s.demokraterna
+-   1 se-partiet
+-   1 sexualdemokraterna
+-   1 sfi
+-   1 ös-gruppen
+-   1 shamanrådet
+-   1 shit piss fuck cunt cocksucker motherfucker tits
+-   1 singelpartiet
+-   1 sjötorps partiet
+-   1 sjukv partiet - västa götaland
+-   1 sjukvård
+-   1 sjukvårdsp.
+-   1 sjukvårdspart.
+-   1 sjukvårdsparti
+-   1 sjukvårdspartiet bollnäs
+-   1 sjukvårdspartiet göteborg
+-   1 sjukvårdspartiet göteborgs kommun
+-   1 sjukvårdspartiet mariestads kommun
+-   1 sjukvårdspartiet - västmanland
+-   1 sjukvårdspartiet västra götaland
+-   1 sjukvårdspartiet - västra götaland 0447-90000
+-   1 skaftöpartiet
+-   1 skinheadpartiet
+-   1 skinheddpartiet
+-   1 skit er i näsan
+-   1 skit piss fuck cunt cocksucker motherfucker tits
+-   1 skånefederalisterna
+-   1 skåne till danmark
+-   1 skoförsäljarpartiet
+-   1 skolpartiet
+-   1 skolpartiet trelleborg
+-   1 skrota landstinget
+-   1 skrotas!
+-   1 skruttsvans emisionen
+-   1 slentrianmodegraterna
+-   1 sluta jaga småfolket
+-   1 sölvesborgspartiet
+-   1 smalspårspartiet
+-   1 sámelista/samelistan partipolitisk obunden
+-   1 snapphanepartiet dackes drabanter
+-   1 snowy shaw
+-   1 socdemokrat
+-   1 social
+-   1 sociala rättighetspartiet
+-   1 social demokrati
+-   1 socialistiska arbetarpatiet
+-   1 socialradikala demokraterna
+-   1 soci demokrom
+-   1 sockerconny partiet
+-   1 soffliggarpartiet
+-   1 soldatkromodatkerna
+-   1 soldemokraterna
+-   1 solidarisk allians
+-   1 solidariskt uddevalla
+-   1 sollefteås bästa
+-   1 sollentunapartiet
+-   1 sorundanet
+-   1 spÅ
+-   1 sparköpspartiet
+-   1 specialdemokraterna
+-   1 spel för gallerierna sluta att vara bilderbergsgruppens lakejer
+-   1 spökplumpen
+-   1 splittrade familjerspartiet
+-   1 säpo fra alliansen
+-   1 sÄpo partiet
+-   1 sporthallens bevarande
+-   1 sporthallpartiet
+-   1 sportpartiet
+-   1 s.p.p
+-   1 sp.p
+-   1 spt spar partiet tombänken
+-   1 stadsministerkandidaten
+-   1 stalinisterna
+-   1 statlig tvångsförvaltning
+-   1 steijal dmkrater
+-   1 stekarns parti
+-   1 stellanpartiet
+-   1 sten sture dÄ
+-   1 Österåkerspartiet
+-   1 stick it up your fucking ass!
+-   1 stoppa gatukontorets p-bötesterror
+-   1 stoppa invandringen ett tag så det finns schans för integration
+-   1 strandskyddspartiet
+-   1 Östra ryds nationalrealister
+-   1 streck baren
+-   1 strömstad för strömstadsborna
+-   1 sugkukpartiet
+-   1 sukp
+-   1 sukp josef stalin
+-   1 svenska folkets parti
+-   1 svenska hästars värn
+-   1 svenska nationalsocialismen
+-   1 svenskarnas pari
+-   1 svenskarnasparti
+-   1 svenskarnas parti 0972-90000
+-   1 svenskarnas parti 90000
+-   1 svenskarnas parti sup
+-   1 svenska småbils- och rusdrycksförbundet
+-   1 svenska småbils och rusdrycksförbundet-joakim lindengren
+-   1 svenska socialdemokraterna
+-   1 sverigedemo
+-   1 sverigedemokraterna
+-   1 sverigemoderaterna
+-   1 sveriges arbetares centralorganisation
+-   1 sveriges kommunistiska parti
+-   1 sveriges national demokraterna
+-   1 sveriges väl inga tjuvar och bedragare
+-   1 svp
+-   1 sv. socialistiska partiet ssp
+-   1 sydikalisterna
+-   1 sydkaparen
+-   1 syndikalvsterna
+-   1 tage vibrators parti
+-   1 tapirernas asocialkollektivistliberala parti
+-   1 tassapartiet
+-   1 technoeraterna
+-   1 teemu laine hv71
+-   1 tema ruotimaa
+-   1 täff
+-   1 the sonias
+-   1 tillit folkets röst
+-   1 tillit-folkets röst
+-   1 tillit - folkets röstpartiet
+-   1 tillit partiet
+-   1 till nästa val...
+-   1 tiwoli shaw
+-   1 tji fick ni
+-   1 tjoflöjt
+-   1 tobbe i köpinge partiet
+-   1 toblerone
+-   1 tolkpartiet
+-   1 tommys renseriparti
+-   1 tom stol
+-   1 tomten
+-   1 tomte partiet
+-   1 toppzi
+-   1 torsåspartiet
+-   1 total inkompetens
+-   1 trafikvägvalet
+-   1 trängspartiet
+-   1 trosa radikaler (vagnhärad - västerljung - trosa)
+-   1 uddevalla partiet
+-   1 ungdomspartiet
+-   1 ungdoms partiet upi
+-   1 unsung at flashback
+-   1 uppdrag granskning
+-   1 up utrotningspartiet utrota falkarna i stadshuset
+-   1 urhults ungdomsparti
+-   1 utsugarepartiet
+-   1 utträde ur ksrr
+-   1 ut ur eu
+-   1 ut ur ksrr
+-   1 ut ur rommarriket eu omedelbart!
+-   1 vadstenas val
+-   1 vargfritt sverigeparti
+-   1 vargfritt sverige partiet
+-   1 vargpolitiken är katastrof
+-   1 varulvar i strumpbyxor
+-   1 vädde liberalerna
+-   1 vet ej
+-   1 vet ej ?
+-   1 vet ej!
+-   1 vetlanda framåtanda
+-   1 vevpartiet
+-   1 vägen till livskvalitet
+-   1 vägpartiet mot vägtullar i göteborg
+-   1 vägvalet 90080
+-   1 vägvalet mot trängselskatter
+-   1 vägvalet/sjukvårdspartiet
+-   1 vägval göteborg
+-   1 vägval vänster - nej till trängselskatt
+-   1 vildsvins partiet
+-   1 ville vilstol
+-   1 vi älskar all
+-   1 violpartiet
+-   1 vi-partiet
+-   1 vippanpartiet
+-   1 vi saknar gert-inge partiet
+-   1 visiona
+-   1 vi som röstar blankt-partiet
+-   1 vi som tycker att alla partierna är som att välja mellan pest
+    eller kolera partiet
+-   1 välj det bästa kålhuvudet
+-   1 väljer mig själv
+-   1 vÄljer mig själv-partiet
+-   1 vännerpartiet
+-   1 vänstersocialisterna
+-   1 voxpop
+-   1 vox umand
+-   1 vpartiet
+-   1 vpk vänsterpartiet kommunisterna
+-   1 vård omsorg
+-   1 världssocialistiska rörelsen wsm
+-   1 västerås sportklubb
+-   1 västra partiet
+-   1 västras väl
+-   1 waynes world
+-   1 widgrens bygg
+-   1 wow partiet
+-   1 www.webhallen.se
+-   1 x-pariet
+-   1 y'all suck
+-   1 yu yan yang
+-   1 zeitgeist morement kärlek & sanning
+-   2 allanpartiet
+-   2 alvesta alternativet
+-   2 anders walter partiet
+-   2 arbetarlön för politikerparti
+-   2 arne anka-partiet
+-   2 asademokraterna
+-   2 bamsepartiet
+-   2 barnens bästa
+-   2 baronbackens parti
+-   2 basinkomstpartiet
+-   2 beriths parti
+-   2 bilistpartiet
+-   2 bjorn
+-   2 bjärepartiet
+-   2 björnfria skogspartiet
+-   2 blangt
+-   2 blankpartiet
+-   2 blankröstpartiet
+-   2 bollnäspartiet
+-   2 botkyrkapartiet
+-   2 bronsålderspartiet
+-   2 byskolan
+-   2 cykelpartiett
+-   2 dagdrivarklubben
+-   2 dalademokraten
+-   2 din framtid
+-   2 ditt parti
+-   2 djurens rätt
+-   2 djurpartiet
+-   2 dönkpartiet
+-   2 doddas parti
+-   2 eap
+-   2 ebs partiet
+-   2 europeiska arbetarpartiet(eap)
+-   2 f1
+-   2 faluns väl
+-   2 fartguppsförbjudarpartiet
+-   2 feministiska initiativet
+-   2 feministiska partiet
+-   2 feministpartiet
+-   2 folkviljan
+-   2 folkviljan på orust
+-   2 forsbackabussen
+-   2 fria norrland
+-   2 galna rävpartiet
+-   2 götenes framtid
+-   2 gå ur ksrr
+-   2 gå ut ur ksrr
+-   2 hallepartiet
+-   2 harry potter
+-   2 herman hedning
+-   2 högerpartiet de konservativa
+-   2 hitler
+-   2 hälsopartiet
+-   2 hårdrockspartiet
+-   2 hundpartiet
+-   2 james bond partiet
+-   2 jan långben
+-   2 janne långben
+-   2 jari partiet
+-   2 jesus emanuel
+-   2 josef stalin partiet
+-   2 jozzypartiet
+-   2 jp-partiet
+-   2 junipartiet
+-   2 kalle anka parti
+-   2 kdr
+-   2 kissie
+-   2 knegarkampanjen
+-   2 kommunistiska partiet kpmlr
+-   2 kommunist partiet
+-   2 kommunlistan
+-   2 kommunpartiet
+-   2 kommunpartiet vdm
+-   2 kp
+-   2 krisdemokraterna
+-   2 ksp kuldup singh partiet
+-   2 kvinnopartiet
+-   2 laakso partiet
+-   2 Ölandspartiet
+-   2 leila selo med djuren
+-   2 lidingöpartiet
+-   2 ljus å kärlek
+-   2 långsamhetspartiet
+-   2 Älska mer!
+-   2 lumberjacks.se
+-   2 magnus den store
+-   2 malin bor kvar
+-   2 manligt initiativ
+-   2 medborgarforum
+-   2 miljö- och vänsterlistan i tanum
+-   2 minipartiet
+-   2 missnöjd
+-   2 morapartiet
+-   2 nackalistan
+-   2 nationalistisk front
+-   2 nationalsocialistisk front
+-   2 naturpartiet
+-   2 niklas lindholmspartiet
+-   2 ninjapartiet
+-   2 nordmarkspartiet
+-   2 norrbotten partiet
+-   2 nya demokraterna
+-   2 ny diktator
+-   2 ny diktatur
+-   2 ny ordning (no)-partipolitiskt ob.
+-   2 omsorgspartiet i arboga
+-   2 onanister för fred
+-   2 partiet
+-   2 partiet för naturens lag
+-   2 pensionerspartiet
+-   2 pirat p
+-   2 pisspartiet
+-   2 politikerhatarpartiet
+-   2 pondus
+-   2 ponnyn piggis parti
+-   2 prippspartiet
+-   2 pwn drop table valj
+-   2 raggarpartiet
+-   2 rödebypartiet
+-   2 ronnebypartiet
+-   2 rättvis demokrati
+-   2 rättvisepartiet socialisterna - enhetslista för jobb mot
+    nedskärningar
+-   2 rudapartiet
+-   2 samhällspartiet
+-   2 satan
+-   2 scooby-doo
+-   2 s.i.p
+-   2 sjöbopartiet
+-   2 sjukvårdspartiet gävle
+-   2 sjukvårdspartiet i värmland
+-   2 **skärp er**
+-   2 socialdek
+-   2 spri
+-   2 stevepartiet
+-   2 stoppa e4 väst
+-   2 storskällmyrens vänner
+-   2 Östra spåret
+-   2 sulen's tuffa piratparti
+-   2 surströmmingspartiet
+-   2 svenska kungen
+-   2 svenska motståndsrörelsen
+-   2 sveriges pensionärs intresseparti
+-   2 sv. nationella dem parti
+-   2 tax partiet
+-   2 ted bundy-partiet
+-   2 tillit-folkets röstpartiet
+-   2 tomma stolar
+-   2 torslandapartiet
+-   2 trängselpartiet
+-   2 tvångsvårdmotståspartiet
+-   2 utvecklingspartiet
+-   2 vågarästamissnöjdspartiet
+-   2 vägvalet göteborg
+-   2 väljarnas parti
+-   2 världs socialismen
+-   2 västjämtlands väl
+-   2 västrainitiativet sollefteå kommuns bästa
+-   2 wåfflan
+-   3 ale - demokraterna
+-   3 allians för ragunda
+-   3 befolkningspartiet
+-   3 de arbetslösas parti
+-   3 demokratisk vänster i lund
+-   3 Ödlepartiet
+-   3 f.i.
+-   3 filosofiskt initiativ
+-   3 folkkampanjen för sjukvården
+-   3 folkupproret sverige ut ur eu
+-   3 framstegspartiet
+-   3 jesus kristus
+-   3 judisk kamp
+-   3 jultomten
+-   3 kalle anka-partiet
+-   3 kärlek
+-   3 landsbygdspartiet oberoende
+-   3 lesta partiet
+-   3 malung-sälenpartiet
+-   3 mammapartiet
+-   3 mig själv
+-   3 människorätt för ofödda
+-   3 musse pigg
+-   3 omsorg för alla
+-   3 pippi långstrump partiet
+-   3 pirapartiet
+-   3 popvox
+-   3 protestpartiet
+-   3 sap
+-   3 södertäljepartiet
+-   3 sjukvårdspartiet - västra götaland
+-   3 skånepartiet
+-   3 strömstadspartiet
+-   3 uddevallapartiet
+-   3 visiona stefan einorn
+-   3 vox humana
+-   4 common sense in sweden
+-   4 direkt demokrati
+-   4 enheten
+-   4 glesbygdspartiet
+-   4 justitiepartiet
+-   4 kungen
+-   4 liberal partiet
+-   4 national demokraterna
+-   4 sjukvårds partiet
+-   4 sjukvårdspartiet gävleborg
+-   4 spindelpartiet
+-   4 sprit partiet
+-   4 sverigepartiet
+-   4 tullingepartiet
+-   4 vaken.se
+-   4 valviljan
+-   4 välfärdspartiet
+-   5 demokratipartiet
+-   5 europeiska arbetarpartiet
+-   5 fantomen
+-   5 feministiskt alternativ
+-   5 feministiskt parti
+-   5 folkets vilja
+-   5 framtidspartiet
+-   5 glesbygdsdemokraterna
+-   5 grythyttelistan
+-   5 högerpartiet
+-   5 kommunens väl
+-   5 landsbygsdemokraterna
+-   5 mitt parti
+-   5 ny demokrati
+-   5 pp
+-   5 robot partiet
+-   5 rättsdemokraterna för mänskliga rättigheter
+-   5 sjukvårdspartiet - västernorrland
+-   5 spf
+-   5 s p i
+-   5 vadstenas väl
+-   5 vägpartiet
+-   5 vpk
+-   5 vårdpartiet
+-   6 direktdemokraterna
+-   6 enhetspartiet
+-   6 gud
+-   6 kirunapartiet
+-   6 klassiska liberala partiet
+-   6 kommunisterna
+-   6 kplmr
+-   6 kpml (r)
+-   6 musikpartiet
+-   6 piratpartiet 90000
+-   6 rädda vården
+-   6 skp
+-   6 sveriges kommunistiska parti - skp
+-   6 syndikalisterna
+-   6 upplands sjukvårdsparti
+-   6 vägval
+-   7 blank
+-   7 feminisktiskt initiativ
+-   7 kplm(r)
+-   7 pensionärpartiet
+-   7 sveriges nationella demokratiska parti
+-   8 alliansen
+-   8 jesus
+-   8 pensionspartiet
+-   8 rättvisepartiet
+-   8 socialpartiet
+-   9 barnpartiet
+-   9 kungsbackaborna
+-   9 ny framtid
+-   9 pirat
+-   9 sjukhuspartiet
+-   10 kpmlr
+-   10 vrinnevilistan
+-   11 blankt
+-   11 falupartiet
+-   11 patientpartiet
+-   12 aktiv demokrati
+-   12 norrbottens sjukvårdsparti
+-   18 sjukvårdpartiet
+-   19 sveriges pensionärers intresseparti
+-   23 socialistiska partiet
+-   26 klassiskt liberala partiet
+-   28 spi - sveriges pensionärers intresseparti
+-   34 junilistan
+-   34 landsbygdsdemokraterna
+-   38 spritpartiet
+-   41 landsbygdspartiet
+-   44 tillit
+-   45 feminiskt initiativ
+-   45 rättvisepartiet socialisterna
+-   46 liberala partiet
+-   46 norrländska samlingspartiet
+-   47 enhet
+-   47 norrlandspartiet
+-   49 spi
+-   50 fi
+-   51 pirat partiet
+-   55 kalle anka
+-   56 feministiskt intiativ
+-   59 pensionärspartiet
+-   69 frihetspartiet
+-   69 nationaldemokraterna
+-   94 kommunistiska partiet
+-   114 vägvalet
+-   123 svenskarnas parti
+-   139 kalle anka partiet
+-   159 sjukvårdspartiet
+-   463 feministiskt initiativ
+-   684 piratpartiet
+
