@@ -17,4 +17,16 @@ server {
     location /om-arkivet {
         rewrite ^/.* http://$server_name/pages/om-arkivet.html permanent;
     }
+
+    listen 443 ssl; # managed by Certbot
+ssl_certificate /etc/letsencrypt/live/oivviosarkiv.polite.se/fullchain.pem; # managed by Certbot
+ssl_certificate_key /etc/letsencrypt/live/oivviosarkiv.polite.se/privkey.pem; # managed by Certbot
+    include /etc/letsencrypt/options-ssl-nginx.conf; # managed by Certbot
+
+
+    # Redirect non-https traffic to https
+    if ($scheme != "https") {
+         return 301 https://$host$request_uri;
+    } # managed by Certbot
+
 }
