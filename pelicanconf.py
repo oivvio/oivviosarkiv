@@ -29,7 +29,8 @@ ARTICLE_SAVE_AS = '{date:%Y}/{date:%m}/{date:%d}/{slug}/index.html'
 DISPLAY_PAGES_ON_MENU = True
 DISPLAY_CATEGORIES_ON_MENU = False
 
-STATIC_PATHS = ['images', 'pdfs', 'audio']
+STATIC_PATHS = ['images', 'pdfs', 'audio', 'extra/CNAME']
+EXTRA_PATH_METADATA = {'extra/CNAME': {'path': 'CNAME'}}
 MENUITEMS = [('Hem', '/')]
 GOOGLE_ANALYTICS = "UA-2026673-1"
 
