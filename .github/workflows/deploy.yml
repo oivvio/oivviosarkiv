@@ -3,6 +3,7 @@ name: Deploy Pelican site to Pages
 on:
   push:
     branches: ["main"]
+  workflow_dispatch:  # Enables "Run workflow" button on GitHub Actions page
 
 permissions:
   contents: read
